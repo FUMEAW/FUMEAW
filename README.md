@@ -1,0 +1,1 @@
+Hello! Do suicide. Bye
